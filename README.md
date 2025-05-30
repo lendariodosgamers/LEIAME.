@@ -1,2 +1,2 @@
 # LEIAME.
- README.md.
+ README.md.Oi aqui eu me chamo de lendario conhecido como lendarios dos gamers minha meta e ajudar as pessoas a criar jogos de 2 a 3d para vendas e diversao por hobby estou aqui focando nos estudos sobre marketing digital para daqui em breve ensinar meu publico a criar jogos e tambem comprar meus jogos . E tambem vou ensinar tambem em breve meu publico a desenvolver e programar seus jogos 
